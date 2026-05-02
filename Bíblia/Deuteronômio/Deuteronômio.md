@@ -1,0 +1,1 @@
+[[Deuteronômio 5]]
